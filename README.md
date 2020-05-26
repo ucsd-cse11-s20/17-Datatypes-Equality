@@ -4,7 +4,7 @@ Zoom: https://ucsd.zoom.us/s/797074102
 
 Zoom Recordings: 
 
-*COMING SOON*
+https://ucsd.zoom.us/rec/share/7MBRcrP_5zpJS4nusBj-Z_F6LL3nT6a80XJM-PYPy03vsQ6bFYm0SG9XfjwQMDp1
 
 Videos:
 
